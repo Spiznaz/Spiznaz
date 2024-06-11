@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Spiznaz
+- 👀 I’m interested in cars and games
+- 🌱 I’m currently learning LAW
+- 📫 How to reach me zfritchell@gmail.com
+- ⚡ Fun fact: monkey
